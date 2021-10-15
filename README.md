@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **criss.softeng@gmail.com**
 
-- ⚡ Fun fact **I**
+- ⚡ Fun fact **I collect soccer jerseys from all teams inthe world!!! (I currently own over 200)**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
